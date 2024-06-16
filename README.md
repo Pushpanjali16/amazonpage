@@ -1,7 +1,7 @@
 # amazonpage
 ![1](https://github.com/Pushpanjali16/amazonpage/assets/144333294/6968ea48-df8e-423c-af9c-e95b61746fed)
 ![1a](https://github.com/Pushpanjali16/amazonpage/assets/144333294/6b3d898f-244a-4f68-ba24-c84c697f829c)
-![Screenshot (483)](https://github.com/Pushpanjali16/amazonpage/assets/144333294/4822ad5c-1199-4cc9-b4c5-c351afd469e7)
+![f](https://github.com/Pushpanjali16/amazonpage/assets/144333294/bc4740b2-4b73-4670-a19d-57b3c48fe3de)
 ![2](https://github.com/Pushpanjali16/amazonpage/assets/144333294/7d303e6a-62f5-4357-b7b0-aff2384b3211)
 ![2a](https://github.com/Pushpanjali16/amazonpage/assets/144333294/a6111a23-5f59-4994-b53e-ad211b02b639)
 ![Screenshot (475)](https://github.com/Pushpanjali16/amazonpage/assets/144333294/36baedcf-cbba-4d88-9f50-1cb550869db8)
